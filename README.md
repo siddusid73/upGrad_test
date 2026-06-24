@@ -1,16 +1,1 @@
 Arrays Test
-fn  gfvjfvbfd
-dbdflbefjbnlfjbf
-dfjlbndlnlfdf
-dnngjasfbgjasfdblafd
-dfnkafdkndfjlbnfd
-jnvvlanfdjvlnasdfb
-dnnbjkfdbafdbjl
-ndflvnbbfggsfjlkn
-erljgnlsjgnjlasfd
-belgjndlgjadfjlg
-jdffgvkadfgjnad
-
-d bn,dgjkdsbjnsfdbl
-ndfvndfjgnfdjlg
-jkdngkjfdngjkfd
